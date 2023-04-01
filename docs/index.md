@@ -36,7 +36,7 @@ __Brigham Young University Idaho__
 ## Awards
 
 `2020`
-Eagle Scout, Boy Scouts of America
+Eagle Scout, _Boy Scouts of America_
 
 `2020-2021`
 National Honors Society
